@@ -1,0 +1,1 @@
+Ciao,sono Landi Aurora e ho scelto NTA per sperimentare questa nuova didattica.
